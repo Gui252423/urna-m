@@ -1,0 +1,5 @@
+- Erick Fernando Priore Michelan: 3023104368
+- Guilherme Fonseca Oliva: 3025104317
+- Kauan Faria Nascimento: 3024103486
+- Matheus Paulucci Ferreira: 3024104172
+- Guilherme Messias de França: 3024105228
